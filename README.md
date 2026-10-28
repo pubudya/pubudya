@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Prabudya Thathsarani
+# 👋 Hi, I'm Pubudya Thathsarani Bandaranayaka.
 
 ### Software Engineer | Full-Stack Developer | Technology Enthusiast
 
